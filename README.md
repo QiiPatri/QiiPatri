@@ -1,1 +1,1 @@
-This guy is lazy and he hasn't left anything.
+This guy is lazy and hasn't left anything.
